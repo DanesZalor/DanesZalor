@@ -1,4 +1,4 @@
-I hate the antichrist and the metaverse
+I like making games hmu
 
 <!---
 DanesZalor/DanesZalor is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
